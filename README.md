@@ -41,3 +41,16 @@
 - sucralose and stevia
 - refridgerate 30min
 - 325 60min
+
+## lasagna 
+- 1lb Italian sausage 
+- 1lb turkey sausage (or beyond)
+- 1 jar rao's marinara
+- 15oz ricotta (or cottage)
+- 12pc/oz oven ready lasagna noodles
+- Parmesan 3oz
+- Romano 3oz
+- Mozzarella 8oz
+- 1egg
+- sauce -> noodles(4) -> sauce -> cheese -> noodles -> sauce -> cheese -> noodles -> sauce -> cheese
+- 375 50min
