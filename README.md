@@ -46,11 +46,14 @@
 - 1lb Italian sausage 
 - 1lb turkey sausage (or beyond)
 - 1 jar rao's marinara
-- 15oz ricotta (or cottage)
-- 12pc/oz oven ready lasagna noodles
+- 8oz ricotta
+- 8oz cottage
+- 12pc/oz noodles (not the oven ready bs)
 - Parmesan 3oz
 - Romano 3oz
 - Mozzarella 8oz
 - 1egg
+- lightly simmer w/ sauce 5min
 - sauce -> noodles(4) -> sauce -> cheese -> noodles -> sauce -> cheese -> noodles -> sauce -> cheese
-- 375 50min
+- 375 45min
+  - add toothpicks and cover with foil
